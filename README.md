@@ -1,2 +1,4 @@
 # Devara
-About movie
+About movie.............
+Hero is NTR
+Heroine is Jhanvi
